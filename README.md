@@ -1,0 +1,2 @@
+# ShaggyFNFANDROID
+Apk Traduzido mesmo
